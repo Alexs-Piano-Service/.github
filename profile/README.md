@@ -57,3 +57,7 @@ Yamaha, Disklavier, PianoSoft, Nalbantov, Gotek, Greaseweazle, PianoDisc, and ot
 For service information, articles, and software downloads, visit:
 
 [alexanderpeppe.com](https://www.alexanderpeppe.com/)
+
+Alex's Piano Service LLC
+432 Elm St. Suite P
+Biddeford, ME 04005
